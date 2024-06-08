@@ -7,7 +7,7 @@
 
 - How to reach me **ernestodeloayza@gmail.com**
 
-- You can think it? You can code it.
+- *Generic phrase about thinking and coding*
 
 <br>
 
